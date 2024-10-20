@@ -1,5 +1,5 @@
 ![image](https://static.wikia.nocookie.net/callofduty/images/b/b4/Multiplayer_Reveal_Promo16_MWII.jpg)
-- ✧･ﾟ: - Astro/Eel/Tempest | He/Him | Bodily under 18 | Trans + Pansexual, Poly | Suspected ADHD, is a DID system, has hypersexuality | < wolflor , sparta, calypso, aiden 3
+- ✧･ﾟ: - Astro/Eel/Tempest | He/Him | Bodily under 18 | Trans + Pansexual, Poly | Suspected ADHD, is a DID system, has hypersexuality | < wolflor , sparta, calypso, aiden, brew 3
 - ✧･ﾟ: - Alters have their own skins. But feel free to ask who's fronting atm
 - ✧･ﾟ: - C+H friendly unless on dni
 - ✧･ﾟ: - could be openly sexual, lmk if uncomf
