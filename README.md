@@ -1,4 +1,4 @@
-![image](https://static.wikia.nocookie.net/cookierun/images/d/dc/Cookie0185_tm01_bg_simple.png)
+![image](https://pin.it/5PBikZd3d)
 - ✧･ﾟ: - Patroclus/Astro/Eel/Tempest | He/Him | Bodily under 18 | Trans + Pansexual, Poly | Suspected ADHD, is a DID system, has hypersexuality | taken 5x.
 - ✧･ﾟ: - Alters have their own skins. But feel free to ask who's fronting atm
 - ✧･ﾟ: - C+H friendly unless on dni
