@@ -1,4 +1,4 @@
-![1001433017](https://roblox.fandom.com/wiki/Sword_Fights_on_the_Heights_(series)?file=Sword_Fights_on_the_Heights_IV.png)
+!(https://roblox.fandom.com/wiki/Sword_Fights_on_the_Heights_(series)?file=Sword_Fights_on_the_Heights_IV.png)
 
 ▒▒▒ AKSEIRIOS / AKSE / SEIRIOS · He/it · SAD & Selective Mutism · Jan. 3rd 
 - _Please be aware when interacting as I may be SUPER BORING or just straight up out of control.
