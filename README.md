@@ -5,3 +5,4 @@
 - _I'm really into the concept of classic roblox.
 - _I am HEAVILY interested in ARGs and myths. Please, don't be shy to recommend me an ARGs to learn about.
 - _Crowns are appreciated! 👑
+- _I don't have DNI specified but I won't interact if I'm uncomfortable
